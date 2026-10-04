@@ -1,0 +1,2 @@
+# premium-bead-blast-001-bead-blasting-cabinet-surfac
+Tired of messy workbenches, lost media specs, and inconsistent blast finishes? This Notion template turns your bead blasting cabinet into a lean, repeatable craft studio.  Eliminate guesswork and wasted time by centralizing every surface prep detail—media inventory, blast recipes, cabinet maintenance logs, and project records. It's the only Notion
